@@ -1,3 +1,5 @@
+<div align="center"><img src="https://github.com/user-attachments/assets/8eaa6a37-4199-46fa-861c-f6860f206afc" width="100" height="100"></div>
+
 # 🪴쑥쑥이 팀
 > 삶을 윤택하게 만들자
 
